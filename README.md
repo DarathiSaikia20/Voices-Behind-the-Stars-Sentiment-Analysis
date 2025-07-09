@@ -5,6 +5,8 @@
 </p>
 
 
+![2020-11-10T124951Z_1575952099_RC2C0K9ZTMFI_RTRMADP_3_AMAZON-COM-INDIA-BOYCOTT-1024x690](https://github.com/user-attachments/assets/2536fe90-200f-4222-a8af-838c26499041)
+
 ## 📚 Table Of Contents
 
 - 📋 **Project Description**
